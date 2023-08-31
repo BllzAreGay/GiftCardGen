@@ -4,4 +4,4 @@ Can be run on low end pc's making it one of the best gens out there
 Currently in BETA
 Dm creeperwarrior08 on discord for becoming beta tester
 All beta testers get full release gen for free
-# Dicord - creeperwarrior08
+# Discord - creeperwarrior08
